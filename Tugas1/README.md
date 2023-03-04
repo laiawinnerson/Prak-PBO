@@ -1,1 +1,1 @@
-Tugas Prak PBO ke-1
+Tugas Praktikum PBO ke-1
